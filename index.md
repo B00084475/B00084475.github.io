@@ -1,4 +1,7 @@
 # The Last Spring 
+
+
+
 ## Chapter 1
 
 The sound of alarm sirens ring throughout the air to warn of the incoming attacks, this had become a daily occurrence in the city of Cryptonia. A horrible war had ensued throughout the winter and the Cyrptionians were on the brink of victory but this was no oridinary war. This war was a ruthless economic battle against the banks, in an attempt to create a fair econmic system.
