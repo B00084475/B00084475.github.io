@@ -4,5 +4,5 @@
 
 ## Chapter 2
 
-[Link](www.b00084475.io)
+[Link](https://b00084475.github.io/index.html)
 
