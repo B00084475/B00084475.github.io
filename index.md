@@ -4,7 +4,7 @@
 
 ## Chapter 1
 
-The sound of alarm sirens ring throughout the air to warn of the incoming attacks, this had become a daily occurrence in the city of Cryptonia. A horrible war had ensued throughout the winter and the Cyrptionians were on the brink of victory but this was no oridinary war. This war was a ruthless economic battle against the banks, in an attempt to create a fair econmic system.
+The sound of alarm sirens ring throughout the air to warn of the incoming attacks, this had become a daily occurrence in the city of Cryptonia. A horrible war had ensued throughout the winter and the Cyrptionians were on the brink of victory but this was no ordinary war. This war was a ruthless economic battle against the banks, in an attempt to create a fair economic system.
 
 However, it had not always been this way. For the past 100 years, the city of Cryptonia had been busy creating the closest thing to a Eutopia the world had ever seen. The city was founded in secret, by what is now known as 'the forgotten twelve'. These men and women sacrificed their lives in an attempt to abolish the corrupted banking systems in place all over the world.
 
