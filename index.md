@@ -15,3 +15,5 @@ The forgotten twelve were apprehended before they could take responsibility for 
 Exactly three years later, a video forcefully appeared on every smart device in existence. This video was unstoppable and appeared on any device connected to a network that had the capability to display an image, sound or video. The video was created by the forgotten twelve, they had anticipated there end and ensured the truth would be known and there work would not be forgotten. The interactive video highlighted every corruption within the banking and political system in a manner everyone could understand alongside all the facts which prove these allegations. They had spent years gathering this research and had to ensure it would be seen. Now every person on the planet knew the truth about how the banking and financial systems were being manipulated to ensure that the wealthy could control virtually anything, from the movement of stock markets, to the mouths of politicians. 
 
 [Chapter 2](https://b00084475.github.io/chap2.html)
+[Chapter 3](https://b00084475.github.io/chap3.html)
+[Chapter 3_Alt](https://b00084475.github.io/alt.html)
