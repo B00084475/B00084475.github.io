@@ -3,7 +3,7 @@
 
 
 ## Chapter 2
-    The video had a massive effect all over the world, bigger than any radical change seen before.
+        The video had a massive effect all over the world, bigger than any radical change seen before.
         Not only were the people now informed to the level of corruption they ensued, they where also given a choice to fight back.
         The video invited every human being alive to join the resistance and come to Cryptonia. It explained how Cryptonia was built upon the idea every
         person would have a place provided they were willing to engage and that every person would be treated justly and have a fair chance at life. The only requirement was for the person to have a genuine
