@@ -3,3 +3,30 @@
 
 
 ## Chapter 3
+
+While Cryptonia flourished, the rest of the world suffered. There was no longer a sustainable economic market for international trade, countries no longer had the people needed to
+        fulfil vital roles and therefore the countries were no longer functional. The majority people that lived in these countries did not live there by choice, they were trapped by a system that had been in place
+        since the dawn of day, only now it was more prevelent than ever. The countries that had overthrown governments and sided with Cryptonia were now at war with the rest of the world, all that was good in the world
+        screamed for a Cryptonian intervention.
+ 
+
+        However, things were not as easy as they seemed. The leaders of Cryptonia had been busy attempting to make peace with world leaders, all of there attempts had failed and the war continued. The Cryptonians did not want
+        to send its army to war, enough troops were already needed to maintain the defense systems in place surrounding each of the domes and they could not afford casualties. Then on March 1st 2125, disaster struck, Brazil was
+        struck by a bomb larger than anything every dropped before. The whole of the southeast region had been completely wiped from the face of the earth, the surrounding areas had been charred for miles upon miles and no growth would ever return.
+
+
+        Cryptonia realised they had to intervene, six months into fighting Cryptonia had successfully made allies with all of the worlds superpowers excluding Israel, America and Russia. The Cryptonians made the decision that the enemy must not be allowed
+        to retreat and that the fight must be taken to their soil. Just when it seemed that the Cryptonians had actually won the war, a drastic turn of events unfolded. A total of 1452 nuclear bombings were unleashed across the world, it was a complete disaster and the
+        biggest loss of casualties ever seen. All life had immediately been taken in an instant, all cities had been destroyed, the war was non-existent, the people were non-existent. Everything above the surface had been destroyed and all that remained was Cryptonia and
+        a small number of top-secret bunkers across the world.
+
+
+        The Cryptonians infiltrated all of the remaining bunkers and apprehended the leaders of the 'corrupt world' that were hidden inside. Astonishingly, inside the majority of the bunkers, the remaining soldiers had turned against their leaders, holding them captive whilst saving as many civilians as possible.
+        One of the underground bunkers in New York had almost five thousand survivors. The corrupt world leaders were sentenced to exile and made leave Cryptonia, meaning they would die from radiation poisoning before ever reaching the closest bunker. The Cryptonians were left with no other choice but to now
+        move on and attempt to create a world with what was left. Fortunately they had the best technology and personal available to fix the mess above ground and put every resource available into the project. Within fifty years the acid rain disappeared and grass began to grow, the planet would soon be habitable again.
+
+        The world would finally rise up, without the chains that had held it down for an eternity.
+
+        [Chapter 1](Chapter1.html)
+        [Chapter 2](Chapter2.html)
+        [Chapter 3 Alternative](Alt_Chapter3.html)
