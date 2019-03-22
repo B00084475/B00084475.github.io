@@ -26,3 +26,7 @@ The world was now experiencing global food shortages and power failures. People 
         twelve are remembered. The corrupt governments spent many years regaining order and restoring 'normality' to civilisation.
   
         The world would once again succumb to the chains that had held it down for eternity.
+
+[Chapter 1](https://b00084475.github.io/index.html)
+[Chapter 2](https://b00084475.github.io/chap2.html)
+[Chapter 3](https://b00084475.github.io/chap3.html)
