@@ -3,6 +3,35 @@
 
 
 ## Chapter 2
+    The video had a massive effect all over the world, bigger than any radical change seen before.
+        Not only were the people now informed to the level of corruption they ensued, they where also given a choice to fight back.
+        The video invited every human being alive to join the resistance and come to Cryptonia. It explained how Cryptonia was built upon the idea every
+        person would have a place provided they were willing to engage and that every person would be treated justly and have a fair chance at life. The only requirement was for the person to have a genuine
+        wanting for a better society.
 
-[Link](https://b00084475.github.io/index.html)
+        Cryptonia was situated within the United Arab Emirates. The President of the United Arab Emirates, Mozir Bin Khalid was a member of the forgotten twelve.
+        As the majority of the members were American, they were unable to build anything remotely big enough on their own soil without being noticed. The 'Cryptonia' project was
+        fronted as 'eco-domes', which would enable UAE to build cities within domes which could sustain a particular climate. A location was chosen where four major cities would
+        be built, another member of the twelve, Edward Larson was the owner of a international construction corporation 'Larson Industries' and was hired to build the eco-domes. While
+        the cities were being built, a city bigger than any other was built underground connecting all four cities. All of the above ground projects were made public and as the
+        domes had been talked about for a long time, nobody suspected anything out of the ordinary.
+ 
+ 
+        When people begin to emigrate in mass, the worlds governments began to intervene. All flights to UAE were grounded and extreme restrictions to public travel were introduced.
+        The people fought back with extreme violence, there were riots across countries, mass murder of political and banking officials, martial law was implemented in nearly every country.
+        Superpowers such as America, Russia and China retaliated with extreme force. 'Correctional Camps' were introduced all over America and over fifty percent of the population was incarcerated.
+        Videos emerged of Chinese and Russian military slaughtering hundreds and thousands of people trying to cross borders in a peaceful protest. Riot squads swept through countries in the night,
+        murdering any people thought to be assisting civilians out of the countries. The powers that be did anything possible to keep control over the world, but the people did not break and countries
+        such as Brazil, Colombia and Turkey were among the first to overthrow their corrupt governments and allow safe passage to Cryptonia.
+
+        Over the next decade, Cryptonia began to fulfill its destiny. It became home to the largest, most densely populated cities in the world. The cities were flawless and all constructed with cutting edge innovation, The underground city 'Vault41'
+        was the most amazing of them all, it contained exact replicas of the best parts of the most popular cities all across the world. The other extremely noticeable difference was how the people of Cryptonia began to advance faster than any other
+        population on earth. They quickly began to become the leaders in every possible field and were creating innovations that realistically were years ahead of their time. For example, Cryptonia had began successfully cloning its materials, the city was also completely powered by renewable energy, all water was
+        completely recycled its purist drinking state, everything produced was recyclable and was recycled, the city produced absolutely no waste.
+
+
+[Chapter 1](https://b00084475.github.io/chap2.html)
+[Chapter 2](https://b00084475.github.io/chap3.html)
+[Chapter 3](https://b00084475.github.io/alt.html)
+
 
