@@ -27,6 +27,6 @@ While Cryptonia flourished, the rest of the world suffered. There was no longer 
 
         The world would finally rise up, without the chains that had held it down for an eternity.
 
-        [Chapter 1](Chapter1.html)
-        [Chapter 2](Chapter2.html)
-        [Chapter 3 Alternative](Alt_Chapter3.html)
+[Chapter 1](https://b00084475.github.io/index.html)
+[Chapter 2](https://b00084475.github.io/chap2.html)
+[Chapter 3 (Alternative)](https://b00084475.github.io/alt.html)
